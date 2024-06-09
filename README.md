@@ -17,3 +17,9 @@
 
 [國會修法程序、法條、定義都有問題？ 變的是太陽花還是黃國昌？ 找本人直接問清楚！ ft.黃國昌 | 斐姨所思【阿姨想知道】 EP168 - YouTube]
 (https://www.youtube.com/watch?v=ymR6Ed5f2aQ)
+
+## 名詞解釋
+### 本人
+亦同本 GitHub 帳號 cstworkout@shuntsungchang.com 持有人
+
+
